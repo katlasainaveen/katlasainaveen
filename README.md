@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/12l0iOiX3xu3rKrpt2rCKy5iM8ISTGFve/view?usp=sharing](https://drive.google.com/file/d/12l0iOiX3xu3rKrpt2rCKy5iM8ISTGFve/view?usp=sharing)
 
-- ⚡ Fun fact **I love to Invest.**
+- ⚡ Fun fact **I love to $ Invest $**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
